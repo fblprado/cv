@@ -1,1 +1,1 @@
-[Curriculum Vitae](https://github.com/fblprado/CV/blob/master/cv_ENG.pdf), last updated June 2020
+[Curriculum Vitae](https://github.com/frprado/cv/raw/master/CVnovember2018.pdf), last updated April 2021
